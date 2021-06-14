@@ -2,7 +2,13 @@
 
 ![](https://readme-typing-svg.herokuapp.com?font=Montserrat&color=49D3DF&lines=I'm+a+Frontend+Web+Developer;I'm+a+UI%2FUX+Designer)
 
-I'm 14-year-old boy on an intention to enhance as a successful full-stack web developer. I love building full-stack web applications and mobile apps. I have proved my superiority in frontend technologies. I love to share my resources and expertise with the dev community. Open to all DMs on [Twitter](https://twitter.com/razaol_info)
+Hi! I’m Razaul karim, a professional Graphic designer with more then 5 years of experience in designing, I love my work & there isn't anything else I could dream of doing with my life!
+
+ 
+I have Expert Skills in creating T shirt designs & Book Covers, I have helped many POD business increase their business by providing quality & creative t shirt designs.
+
+ 
+I’m also a virtual assistant, I worked in a UK POD Company and successfully manage eBay, amazon & etsy, so I exactly know what people love to wear on different festive occasions or in normal days. [Twitter](https://twitter.com/razaol_info)
 
 - 🔭 I’m currently working on my MERN Stack
 - 🌱 I’m currently learning Backend & APIs
