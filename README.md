@@ -9,7 +9,7 @@ I'm 14-year-old boy on an intention to enhance as a successful full-stack web de
 - 👯 I’m looking to collaborate on Full stack web development
 - 🤔 I’m looking for help with Backend & APIs
 - 💬 Ask me about Frontend Technologies
-- 📫 How to reach me: [saviomartin2007@gmail.com](mailto:razaulkarim.bd47gmail.com) & [Twitter @SavioMartin7](https://twitter.com/razaol_info)
+- 📫 How to reach me: [razaulkarim.bd47@gmail.com](mailto:razaulkarim.bd47@gmail.com) & [Twitter @razaol_info](https://twitter.com/razaol_info)
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: Big fan of 🌈
 
