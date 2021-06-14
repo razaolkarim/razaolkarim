@@ -5,7 +5,7 @@
 Hi! I’m Razaul karim, a professional Graphic designer with more then 5 years of experience in designing, I love my work & there isn't anything else I could dream of doing with my life!
 
  
-I have Expert Skills in creating T shirt designs & Book Covers, I have helped many POD business increase their business by providing quality & creative t shirt designs.
+I have Expert Skills in creative T-shirt designs & Book Covers, I have helped many POD business increase their business by providing quality & creative t shirt designs.
 
  
 I’m also a virtual assistant, I worked in a UK POD Company and successfully manage eBay, amazon & etsy, so I exactly know what people love to wear on different festive occasions or in normal days. [Twitter](https://twitter.com/razaol_info)
