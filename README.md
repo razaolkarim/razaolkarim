@@ -24,10 +24,11 @@ I’m also a virtual assistant, I worked in a UK POD Company and successfully ma
 - [Instagram](https://www.instagram.com/teen_developer/)
 - [LinkedIn](https://www.linkedin.com/in/saviomartin)
 - [Twitter](https://twitter.com/saviomartin7)
-- [Codepen](https://codepen.io/saviomartin/)
-- [Figma](https://www.figma.com/@saviomartin)
-- [Hashnode](https://hashnode.com/@saviomartin)
-- [Dev.to](https://dev.to/saviomartin)
+- [Codepen](https://codepen.io/razaol_info)
+- [Figma](https://www.figma.com/files/user/986270758446878921?fuid=986270758446878921
+=)
+- [Hashnode](https://hashnode.com/@razaolinfo)
+- [Dev.to](https://dev.to/razaol_info)
 
 ## My skills 🚀
 
