@@ -25,8 +25,7 @@ I’m also a virtual assistant, I worked in a UK POD Company and successfully ma
 - [LinkedIn](https://www.linkedin.com/in/saviomartin)
 - [Twitter](https://twitter.com/saviomartin7)
 - [Codepen](https://codepen.io/razaol_info)
-- [Figma](https://www.figma.com/files/user/986270758446878921?fuid=986270758446878921
-=)
+- [Figma](https://www.figma.com/files/user/986270758446878921?fuid=986270758446878921=)
 - [Hashnode](https://hashnode.com/@razaolinfo)
 - [Dev.to](https://dev.to/razaol_info)
 
