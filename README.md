@@ -21,7 +21,7 @@ I’m also a virtual assistant, I worked in a UK POD Company and successfully ma
 
 ## Find me around the web 🌍
 
--[facebook.com](https://www.facebook.com/razaol.info/)
+- [Facebook](https://www.facebook.com/razaol.info/)
 - [Instagram](https://www.instagram.com/razaol.info/)
 - [LinkedIn](https://www.linkedin.com/in/razaol-karim-bd3147com/)
 - [Twitter](https://twitter.com/razaol_info)
