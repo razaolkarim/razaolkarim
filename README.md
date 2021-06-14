@@ -21,9 +21,10 @@ I’m also a virtual assistant, I worked in a UK POD Company and successfully ma
 
 ## Find me around the web 🌍
 
-- [Instagram](https://www.instagram.com/teen_developer/)
-- [LinkedIn](https://www.linkedin.com/in/saviomartin)
-- [Twitter](https://twitter.com/saviomartin7)
+-[facebook.com](https://www.facebook.com/razaol.info/)
+- [Instagram](https://www.instagram.com/razaol.info/)
+- [LinkedIn](https://www.linkedin.com/in/razaol-karim-bd3147com/)
+- [Twitter](https://twitter.com/razaol_info)
 - [Codepen](https://codepen.io/razaol_info)
 - [Figma](https://www.figma.com/files/user/986270758446878921?fuid=986270758446878921=)
 - [Hashnode](https://hashnode.com/@razaolinfo)
