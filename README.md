@@ -1,6 +1,6 @@
 # Hey, I am Razaol Karim👋✌️
 
-![](https://readme-typing-svg.herokuapp.com?font=Montserrat&color=49D3DF&lines=I'm+a+Frontend+Web+Developer;I'm+a+UI%2FUX+Designer)
+![](https://readme-typing-svg.herokuapp.com?font=Montserrat&color=49D3DF&lines=I'm+a+Creative+Graphic+Designer;I'm+a+UI%2FUX+Designer)
 
 Hi! I’m Razaul karim, a professional Graphic designer with more then 5 years of experience in designing, I love my work & there isn't anything else I could dream of doing with my life!
 
