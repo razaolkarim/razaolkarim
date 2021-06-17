@@ -2,13 +2,7 @@
 
 ![](https://readme-typing-svg.herokuapp.com?font=Montserrat&color=49D3DF&lines=I'm+a+Creative+Graphic+Designer;I'm+a+UI%2FUX+Designer)
 
-Hi! I’m Razaul karim, a professional Graphic designer with more then 5 years of experience in designing, I love my work & there isn't anything else I could dream of doing with my life!
-
- 
-I have Expert Skills in creative T-shirt designs & Book Covers, I have helped many POD business increase their business by providing quality & creative t shirt designs.
-
- 
-I’m also a virtual assistant, I worked in a UK POD Company and successfully manage eBay, amazon & etsy, so I exactly know what people love to wear on different festive occasions or in normal days. [Twitter](https://twitter.com/razaol_info)
+Hi! I am Razaul karim. I’m a professional Creative UI/UX, Book Covers, Business Card, and T-shirt design EXPERT. Design is my passion. I love my work & there isn't anything else I could dream of doing with my life! I love minimal, clean, modern and unique designs. I have helped much POD business increase their business by providing quality & creative t shirt designs. I’m also a virtual assistant; I worked in a UK POD Company and successfully manage eBay, Amazon & etsy, so I exactly know what people love to wear on different festive occasions or in normal days. Are you looking for Creative and next-level work? Yes you are right place receive all work with responsibly and provide the best satisfaction quality work. I believe That Client Satisfaction is My SUCCESS. If you have any questions, feel free to ask Me. Thank you.[Twitter](https://twitter.com/razaol_info)
 
 - 🔭 I’m currently working on my MERN Stack
 - 🌱 I’m currently learning Backend & APIs
